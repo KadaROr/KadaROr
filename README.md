@@ -23,3 +23,4 @@ Feel free to explore my repositories and projects!
 ![Profile Views](https://komarev.com/ghpvc/?username=KadaROr&color=green)
 
 Let's connect and learn from each other! 🚀
+Love and Peace ! 
